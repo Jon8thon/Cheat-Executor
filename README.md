@@ -1,1 +1,1 @@
-This is an executor for all my current and future tools I may make. Email me at Jonathonsservices@outlook.com for suggestions or business opportunities.
+This is an executor for all my current and future tools I may make. At the time of download not all tools may be working or up to date but I am working on updating all the tools and they will be available soon. Email me at Jonathonsservices@outlook.com for suggestions or business opportunities.
